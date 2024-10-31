@@ -1,0 +1,1 @@
+# bgt2_ntp2_31Ekim_1
